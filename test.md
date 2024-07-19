@@ -1,8 +1,8 @@
-# Monday of week 1 in Ordinary Time
+## Monday of week 1 in Ordinary Time
 
-## Genesis 1:1-2:4
+### Genesis 1:1-2:4
 
-## The creation of Heaven and Earth
+### The creation of Heaven and Earth
 
 In the beginning God created the heavens and the earth. The earth was without form and void, and darkness was upon the face of the deep; and the Spirit of God was moving over the face of the waters.
 
