@@ -1,4 +1,4 @@
-1b -- Romans 1:1-17 -- Greeting and thanksgiving
+<a href="https://zdehkordi.github.io/officeofreadings/1/1b.md">1b -- Romans 1:1-17 -- Greeting and thanksgiving</a>
 
 1c -- Romans 1:18-32 -- God’s wrath against the wicked
 
