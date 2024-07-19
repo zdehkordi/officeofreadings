@@ -1,469 +1,469 @@
-<a href="https://zdehkordi.github.io/officeofreadings/1/1b.md">1b -- Romans 1:1-17 -- Greeting and thanksgiving</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/1b.md">1b -- Romans 1:1-17 -- Greeting and thanksgiving</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/1c.md">1c -- Romans 1:18-32 -- God’s wrath against the wicked</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/1c.md">1c -- Romans 1:18-32 -- God’s wrath against the wicked</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/1d.md">1d -- Romans 2:1-16 -- God’s just judgement</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/1d.md">1d -- Romans 2:1-16 -- God’s just judgement</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/1f.md">1f -- Romans 2:17-29 -- Israel’s disobedience</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/1f.md">1f -- Romans 2:17-29 -- Israel’s disobedience</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/1e.md">1e -- Romans 3:1-20 -- All men are under sin</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/1e.md">1e -- Romans 3:1-20 -- All men are under sin</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/1g.md">1g -- Romans 3:21-31 -- The justification which proceeds from faith</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/1g.md">1g -- Romans 3:21-31 -- The justification which proceeds from faith</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/2a.md">2a -- Romans 4:1-25 -- Abraham was justified through faith</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/2a.md">2a -- Romans 4:1-25 -- Abraham was justified through faith</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/2b.md">2b -- Romans 5:1-11 -- The justification of man through Christ</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/2b.md">2b -- Romans 5:1-11 -- The justification of man through Christ</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/2c.md">2c -- Romans 5:12-21 -- The old and the new Adam</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/2c.md">2c -- Romans 5:12-21 -- The old and the new Adam</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/2d.md">2d -- Romans 6:1-11 -- The baptized are configured to Christ</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/2d.md">2d -- Romans 6:1-11 -- The baptized are configured to Christ</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/2f.md">2f -- Romans 6:12-23 -- The need to surrender to justice</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/2f.md">2f -- Romans 6:12-23 -- The need to surrender to justice</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/2e.md">2e -- Romans 7:1-13 -- “I would not know sin except through the Law”</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/2e.md">2e -- Romans 7:1-13 -- “I would not know sin except through the Law”</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/2g.md">2g -- Romans 7:14-25 -- “I am flesh, under the power of sin”</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/2g.md">2g -- Romans 7:14-25 -- “I am flesh, under the power of sin”</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/3b.md">3b -- Romans 8:18-39 -- Glorification is assured</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/3b.md">3b -- Romans 8:18-39 -- Glorification is assured</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/3c.md">3c -- Romans 9:1-18 -- Israel’s election and sin</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/3c.md">3c -- Romans 9:1-18 -- Israel’s election and sin</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/3d.md">3d -- Romans 9:19-33 -- The creator’s unrestricted omnipotence</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/3d.md">3d -- Romans 9:19-33 -- The creator’s unrestricted omnipotence</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/3f.md">3f -- Romans 10:1-21 -- The one God of Israel and all peoples</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/3f.md">3f -- Romans 10:1-21 -- The one God of Israel and all peoples</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/3e.md">3e -- Romans 11:1-12 -- God does not reject Israel</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/3e.md">3e -- Romans 11:1-12 -- God does not reject Israel</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/3g.md">3g -- Romans 11:13-24 -- If the Root is holy, so too the Branch</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/3g.md">3g -- Romans 11:13-24 -- If the Root is holy, so too the Branch</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/4a.md">4a -- Romans 11:25-36 -- The future conversion of Israel</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/4a.md">4a -- Romans 11:25-36 -- The future conversion of Israel</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/4b.md">4b -- Romans 12:1-21 -- The Christian life, a spiritual worship</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/4b.md">4b -- Romans 12:1-21 -- The Christian life, a spiritual worship</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/4c.md">4c -- Romans 13:1-14 -- Rules of behaviour</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/4c.md">4c -- Romans 13:1-14 -- Rules of behaviour</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/4d.md">4d -- Romans 14:1-23 -- Firm solicitude in faith for the weak</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/4d.md">4d -- Romans 14:1-23 -- Firm solicitude in faith for the weak</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/4f.md">4f -- Romans 15:1-13 -- Christ’s example teaches tolerance</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/4f.md">4f -- Romans 15:1-13 -- Christ’s example teaches tolerance</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/4e.md">4e -- Romans 15:14-33 -- Paul’s ministry and purpose</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/4e.md">4e -- Romans 15:14-33 -- Paul’s ministry and purpose</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/4g.md">4g -- Romans 16:1-27 -- Commendations, greetings and doxology</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/4g.md">4g -- Romans 16:1-27 -- Commendations, greetings and doxology</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/5a.md">5a -- 1 Corinthians 1:1-17 -- Divisions among the faithful</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/5a.md">5a -- 1 Corinthians 1:1-17 -- Divisions among the faithful</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/5b.md">5b -- 1 Corinthians 1:18-31 -- The foolishness of the Cross, the wisdom of God</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/5b.md">5b -- 1 Corinthians 1:18-31 -- The foolishness of the Cross, the wisdom of God</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/5c.md">5c -- 1 Corinthians 2:1-16 -- Wisdom revealed by the Spirit of God</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/5c.md">5c -- 1 Corinthians 2:1-16 -- Wisdom revealed by the Spirit of God</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/5d.md">5d -- 1 Corinthians 3:1-23 -- The duties of ministers in the Church</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/5d.md">5d -- 1 Corinthians 3:1-23 -- The duties of ministers in the Church</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/5f.md">5f -- 1 Corinthians 4:1-21 -- An exhortation against pride</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/5f.md">5f -- 1 Corinthians 4:1-21 -- An exhortation against pride</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/5e.md">5e -- 1 Corinthians 5:1-13 -- Sentence upon a fornicator</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/5e.md">5e -- 1 Corinthians 5:1-13 -- Sentence upon a fornicator</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/5g.md">5g -- 1 Corinthians 6:1-11 -- Do not drag your brother to a pagan for judgement</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/5g.md">5g -- 1 Corinthians 6:1-11 -- Do not drag your brother to a pagan for judgement</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/6a.md">6a -- 1 Corinthians 6:12-20 -- Fornication to be avoided</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/6a.md">6a -- 1 Corinthians 6:12-20 -- Fornication to be avoided</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/6b.md">6b -- 1 Corinthians 7:1-24 -- Regarding marriage</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/6b.md">6b -- 1 Corinthians 7:1-24 -- Regarding marriage</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/6c.md">6c -- 1 Corinthians 7:25-40 -- Concerning virginity and matrimony</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/6c.md">6c -- 1 Corinthians 7:25-40 -- Concerning virginity and matrimony</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/6d.md">6d -- 1 Corinthians 8:1-13 -- On eating meat offered to idols</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/6d.md">6d -- 1 Corinthians 8:1-13 -- On eating meat offered to idols</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/6f.md">6f -- 1 Corinthians 9:1-18 -- Paul’s freedom and love</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/6f.md">6f -- 1 Corinthians 9:1-18 -- Paul’s freedom and love</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/6e.md">6e -- 1 Corinthians 9:19-27 -- Paul’s example</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/6e.md">6e -- 1 Corinthians 9:19-27 -- Paul’s example</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/6g.md">6g -- 1 Corinthians 10:1-14 -- Israel’s history: our example</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/6g.md">6g -- 1 Corinthians 10:1-14 -- Israel’s history: our example</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/7a.md">7a -- 1 Corinthians 10:14-11:1 -- The table of the Lord and the table of demons</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/7a.md">7a -- 1 Corinthians 10:14-11:1 -- The table of the Lord and the table of demons</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/7b.md">7b -- 1 Corinthians 11:2-16 -- Women in the assembly of the faithful</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/7b.md">7b -- 1 Corinthians 11:2-16 -- Women in the assembly of the faithful</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/7c.md">7c -- 1 Corinthians 11:17-34 -- The Lord’s Supper</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/7c.md">7c -- 1 Corinthians 11:17-34 -- The Lord’s Supper</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/7d.md">7d -- 1 Corinthians 12:1-11 -- A variety of charisms in one Body of Christ</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/7d.md">7d -- 1 Corinthians 12:1-11 -- A variety of charisms in one Body of Christ</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/7f.md">7f -- 1 Corinthians 12:12-31 -- The various roles of members of the Body</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/7f.md">7f -- 1 Corinthians 12:12-31 -- The various roles of members of the Body</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/7e.md">7e -- 1 Corinthians 12:31-13:13 -- The supremacy of charity</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/7e.md">7e -- 1 Corinthians 12:31-13:13 -- The supremacy of charity</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/7g.md">7g -- 1 Corinthians 14:1-19 -- Tongues, prophecy and interpretation</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/7g.md">7g -- 1 Corinthians 14:1-19 -- Tongues, prophecy and interpretation</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/8a.md">8a -- 1 Corinthians 14:20-40 -- On the use of charisms in the assembly</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/8a.md">8a -- 1 Corinthians 14:20-40 -- On the use of charisms in the assembly</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/8b.md">8b -- 1 Corinthians 15:1-19 -- Christ’s resurrection, the hope of the faithful</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/8b.md">8b -- 1 Corinthians 15:1-19 -- Christ’s resurrection, the hope of the faithful</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/8c.md">8c -- 1 Corinthians 15:20-34 -- The resurrection of the dead and God’s coming</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/8c.md">8c -- 1 Corinthians 15:20-34 -- The resurrection of the dead and God’s coming</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/8d.md">8d -- 1 Corinthians 15:35-58 -- The resurrection on the Last Day</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/8d.md">8d -- 1 Corinthians 15:35-58 -- The resurrection on the Last Day</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/8f.md">8f -- 1 Corinthians 16:1-24 -- Recommendations and greetings</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/8f.md">8f -- 1 Corinthians 16:1-24 -- Recommendations and greetings</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/8e.md">8e -- James 1:1-18 -- Joy in trials</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/8e.md">8e -- James 1:1-18 -- Joy in trials</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/8g.md">8g -- James 1:19-27 -- The Word is not only to be listened to, but obeyed</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/8g.md">8g -- James 1:19-27 -- The Word is not only to be listened to, but obeyed</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/9a.md">9a -- James 2:1-13 -- Avoiding partiality towards persons</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/9a.md">9a -- James 2:1-13 -- Avoiding partiality towards persons</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/9b.md">9b -- James 2:14-26 -- Faith is authenticated by works</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/9b.md">9b -- James 2:14-26 -- Faith is authenticated by works</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/9c.md">9c -- James 3:1-12 -- The tongue ought to be used moderately</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/9c.md">9c -- James 3:1-12 -- The tongue ought to be used moderately</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/9d.md">9d -- James 3:13-18 -- Show wisdom and avoid ambition</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/9d.md">9d -- James 3:13-18 -- Show wisdom and avoid ambition</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/9f.md">9f -- James 4:1-12 -- Root of all discord</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/9f.md">9f -- James 4:1-12 -- Root of all discord</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/9e.md">9e -- James 4:13-5:11 -- The Lord’s imminent coming</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/9e.md">9e -- James 4:13-5:11 -- The Lord’s imminent coming</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/9g.md">9g -- James 5:12-20 -- A good man's heartfelt prayer has great power</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/9g.md">9g -- James 5:12-20 -- A good man's heartfelt prayer has great power</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/10a.md">10a -- Ecclesiasticus 46:1-12 -- In praise of Joshua and Caleb</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/10a.md">10a -- Ecclesiasticus 46:1-12 -- In praise of Joshua and Caleb</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/10b.md">10b -- Joshua 1:1-18 -- Joshua exhorts the tribes to unity</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/10b.md">10b -- Joshua 1:1-18 -- Joshua exhorts the tribes to unity</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/10c.md">10c -- Joshua 2:1-24 -- Rahab the harlot helps the spies</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/10c.md">10c -- Joshua 2:1-24 -- Rahab the harlot helps the spies</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/10d.md">10d -- Joshua 3:1-17,4:14-19,5:10-12 -- The people cross the Jordan and celebrate Passover</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/10d.md">10d -- Joshua 3:1-17,4:14-19,5:10-12 -- The people cross the Jordan and celebrate Passover</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/10f.md">10f -- Joshua 5:13-6:21 -- The most powerful enemy city is destroyed</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/10f.md">10f -- Joshua 5:13-6:21 -- The most powerful enemy city is destroyed</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/10e.md">10e -- Joshua 7:4-26 -- Achan’s crime and punishment</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/10e.md">10e -- Joshua 7:4-26 -- Achan’s crime and punishment</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/10g.md">10g -- Joshua 10:1-14,11:15-17 -- God’s people take possession of the land</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/10g.md">10g -- Joshua 10:1-14,11:15-17 -- God’s people take possession of the land</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/11a.md">11a -- Joshua 24:1-7,13-28 -- The Covenant is renewed in the Promised Land</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/11a.md">11a -- Joshua 24:1-7,13-28 -- The Covenant is renewed in the Promised Land</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/11b.md">11b -- Judges 2:6-3:4 -- The time of the Judges</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/11b.md">11b -- Judges 2:6-3:4 -- The time of the Judges</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/11c.md">11c -- Judges 4:1-24 -- Deborah and Barak</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/11c.md">11c -- Judges 4:1-24 -- Deborah and Barak</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/11d.md">11d -- Judges 6:1-6,11-24 -- The call of Gideon</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/11d.md">11d -- Judges 6:1-6,11-24 -- The call of Gideon</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/11f.md">11f -- Judges 6:33-35,7:1-8,16-22 -- Gideon conquers with a smaller army</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/11f.md">11f -- Judges 6:33-35,7:1-8,16-22 -- Gideon conquers with a smaller army</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/11e.md">11e -- Judges 8:22-23,30-32,9:1-15,19-20 -- God’s people struggle to appoint a king</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/11e.md">11e -- Judges 8:22-23,30-32,9:1-15,19-20 -- God’s people struggle to appoint a king</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/11g.md">11g -- Judges 11:1-9,29-40 -- Jephthah’s vow and victory</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/11g.md">11g -- Judges 11:1-9,29-40 -- Jephthah’s vow and victory</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/12a.md">12a -- Judges 13:1-25 -- The birth of Samson is announced</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/12a.md">12a -- Judges 13:1-25 -- The birth of Samson is announced</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/12b.md">12b -- Judges 16:4-6,16-31 -- Delilah’s faithlessness and Samson’s death</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/12b.md">12b -- Judges 16:4-6,16-31 -- Delilah’s faithlessness and Samson’s death</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/12c.md">12c -- 1 Samuel 1:1-19 -- Hannah’s sterility and prayer</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/12c.md">12c -- 1 Samuel 1:1-19 -- Hannah’s sterility and prayer</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/12d.md">12d -- 1 Samuel 1:19-28,2:11-21 -- The birth and consecration of Samuel</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/12d.md">12d -- 1 Samuel 1:19-28,2:11-21 -- The birth and consecration of Samuel</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/12f.md">12f -- 1 Samuel 2:22-36 -- The condemnation of Eli’s house</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/12f.md">12f -- 1 Samuel 2:22-36 -- The condemnation of Eli’s house</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/12e.md">12e -- 1 Samuel 3:1-21 -- The call of Samuel</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/12e.md">12e -- 1 Samuel 3:1-21 -- The call of Samuel</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/12g.md">12g -- 1 Samuel 4:1-18 -- The capture of the Ark of God and Eli’s death</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/12g.md">12g -- 1 Samuel 4:1-18 -- The capture of the Ark of God and Eli’s death</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/13a.md">13a -- 1 Samuel 5:1-6,6:1-5a,10-12,19-21,7:1 -- The Ark of God is sent back to Israel</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/13a.md">13a -- 1 Samuel 5:1-6,6:1-5a,10-12,19-21,7:1 -- The Ark of God is sent back to Israel</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/13b.md">13b -- 1 Samuel 7:15-8:22 -- Israel asks for a king</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/13b.md">13b -- 1 Samuel 7:15-8:22 -- Israel asks for a king</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/13c.md">13c -- 1 Samuel 9:1-6,14-10:1 -- Saul is chosen and anointed as king</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/13c.md">13c -- 1 Samuel 9:1-6,14-10:1 -- Saul is chosen and anointed as king</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/13d.md">13d -- 1 Samuel 11:1-15 -- Saul acclaimed king by the people</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/13d.md">13d -- 1 Samuel 11:1-15 -- Saul acclaimed king by the people</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/13f.md">13f -- 1 Samuel 12:1-25 -- Samuel as judge disowns Saul</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/13f.md">13f -- 1 Samuel 12:1-25 -- Samuel as judge disowns Saul</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/13e.md">13e -- 1 Samuel 15:1-23 -- The sinner Saul rejected by God</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/13e.md">13e -- 1 Samuel 15:1-23 -- The sinner Saul rejected by God</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/13g.md">13g -- 1 Samuel 16:1-13 -- Jesse's youngest son David is anointed king</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/13g.md">13g -- 1 Samuel 16:1-13 -- Jesse's youngest son David is anointed king</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/14a.md">14a -- 1 Samuel 17:1-10,23-26,40-51 -- David goes into battle with Goliath</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/14a.md">14a -- 1 Samuel 17:1-10,23-26,40-51 -- David goes into battle with Goliath</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/14b.md">14b -- 1 Samuel 17:57-18:9,20-30 -- Saul’s envy towards David</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/14b.md">14b -- 1 Samuel 17:57-18:9,20-30 -- Saul’s envy towards David</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/14c.md">14c -- 1 Samuel 19:8-10,20:1-17 -- The friendship between David and Jonathan</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/14c.md">14c -- 1 Samuel 19:8-10,20:1-17 -- The friendship between David and Jonathan</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/14d.md">14d -- 1 Samuel 21:2-10,22:1-5 -- David’s flight</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/14d.md">14d -- 1 Samuel 21:2-10,22:1-5 -- David’s flight</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/14f.md">14f -- 1 Samuel 25:14-24,28-39 -- David and Abigail</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/14f.md">14f -- 1 Samuel 25:14-24,28-39 -- David and Abigail</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/14e.md">14e -- 1 Samuel 26:5-25 -- David's generosity to Saul</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/14e.md">14e -- 1 Samuel 26:5-25 -- David's generosity to Saul</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/14g.md">14g -- 1 Samuel 28:3-25 -- Saul and the witch of Endor</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/14g.md">14g -- 1 Samuel 28:3-25 -- Saul and the witch of Endor</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/15a.md">15a -- 1 Samuel 31:1-4,2 Samuel 1:1-16 -- Saul’s death</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/15a.md">15a -- 1 Samuel 31:1-4,2 Samuel 1:1-16 -- Saul’s death</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/15b.md">15b -- 2 Samuel 2:1-11,3:1-5 -- David is anointed King of Judah at Hebron</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/15b.md">15b -- 2 Samuel 2:1-11,3:1-5 -- David is anointed King of Judah at Hebron</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/15c.md">15c -- 2 Samuel 4:2-5:7 -- David reigns over Israel. The capture of Jerusalem</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/15c.md">15c -- 2 Samuel 4:2-5:7 -- David reigns over Israel. The capture of Jerusalem</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/15d.md">15d -- 2 Samuel 6:1-23 -- The Ark is transferred to Jerusalem</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/15d.md">15d -- 2 Samuel 6:1-23 -- The Ark is transferred to Jerusalem</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/15f.md">15f -- 2 Samuel 7:1-25 -- Nathan’s messianic prophecy</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/15f.md">15f -- 2 Samuel 7:1-25 -- Nathan’s messianic prophecy</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/15e.md">15e -- 2 Samuel 11:1-17,26-27 -- David’s sin</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/15e.md">15e -- 2 Samuel 11:1-17,26-27 -- David’s sin</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/15g.md">15g -- 2 Samuel 12:1-25 -- David’s repentance</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/15g.md">15g -- 2 Samuel 12:1-25 -- David’s repentance</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/16a.md">16a -- 2 Samuel 15:7-14,24-30,16:5-13 -- Absalom’s rebellion and David’s flight</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/16a.md">16a -- 2 Samuel 15:7-14,24-30,16:5-13 -- Absalom’s rebellion and David’s flight</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/16b.md">16b -- 2 Samuel 18:6-17,24-19:5 -- Absalom’s death; David’s sorrow</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/16b.md">16b -- 2 Samuel 18:6-17,24-19:5 -- Absalom’s death; David’s sorrow</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/16c.md">16c -- 2 Samuel 24:1-4,10-18,24-25 -- A census of the people and the construction of the altar</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/16c.md">16c -- 2 Samuel 24:1-4,10-18,24-25 -- A census of the people and the construction of the altar</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/16d.md">16d -- 1 Chronicles 22:5-19 -- The construction of the Temple prepared by David</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/16d.md">16d -- 1 Chronicles 22:5-19 -- The construction of the Temple prepared by David</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/16f.md">16f -- 1 Kings 1:11-35,2:10-12 -- David selects Solomon as his successor</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/16f.md">16f -- 1 Kings 1:11-35,2:10-12 -- David selects Solomon as his successor</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/16e.md">16e -- 1 Kings 3:5-28 -- The inauguration of Solomon’s reign</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/16e.md">16e -- 1 Kings 3:5-28 -- The inauguration of Solomon’s reign</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/16g.md">16g -- 1 Kings 8:1-21 -- The solemn dedication of the Temple</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/16g.md">16g -- 1 Kings 8:1-21 -- The solemn dedication of the Temple</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/17a.md">17a -- 1 Kings 8:22-34,54-61 -- Solomon’s prayer at the Temple dedication</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/17a.md">17a -- 1 Kings 8:22-34,54-61 -- Solomon’s prayer at the Temple dedication</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/17b.md">17b -- 1 Kings 10:1-13 -- Solomon’s glory before the Queen of Sheba</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/17b.md">17b -- 1 Kings 10:1-13 -- Solomon’s glory before the Queen of Sheba</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/17c.md">17c -- 1 Kings 11:1-4,26-43 -- Solomon’s sins. Jeroboam’s rebellion and flight</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/17c.md">17c -- 1 Kings 11:1-4,26-43 -- Solomon’s sins. Jeroboam’s rebellion and flight</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/17d.md">17d -- 1 Kings 12:1-19 -- The political schism</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/17d.md">17d -- 1 Kings 12:1-19 -- The political schism</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/17f.md">17f -- 1 Kings 12:20-33 -- The religious schism</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/17f.md">17f -- 1 Kings 12:20-33 -- The religious schism</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/17e.md">17e -- 1 Kings 16:29-17:16 -- The coming of Elijah in the time of Ahab</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/17e.md">17e -- 1 Kings 16:29-17:16 -- The coming of Elijah in the time of Ahab</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/17g.md">17g -- 1 Kings 18:16-40 -- Elijah prevails over the priests of Baal</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/17g.md">17g -- 1 Kings 18:16-40 -- Elijah prevails over the priests of Baal</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/18a.md">18a -- 1 Kings 19:1-9,11-21 -- The Lord reveals himself to Elijah</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/18a.md">18a -- 1 Kings 19:1-9,11-21 -- The Lord reveals himself to Elijah</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/18b.md">18b -- 1 Kings 21:1-21,27-29 -- Elijah, defender of justice for the poor</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/18b.md">18b -- 1 Kings 21:1-21,27-29 -- Elijah, defender of justice for the poor</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/18c.md">18c -- 1 Kings 22:1-9,15-23,29,34-38 -- God’s plan for the evil King Ahab</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/18c.md">18c -- 1 Kings 22:1-9,15-23,29,34-38 -- God’s plan for the evil King Ahab</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/18d.md">18d -- 2 Chronicles 20:1-9,13-24 -- The help God offered to the faithful King Jehoshaphat</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/18d.md">18d -- 2 Chronicles 20:1-9,13-24 -- The help God offered to the faithful King Jehoshaphat</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/18f.md">18f -- 2 Kings 2:1-15 -- Elijah is taken up to heaven</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/18f.md">18f -- 2 Kings 2:1-15 -- Elijah is taken up to heaven</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/18e.md">18e -- 2 Kings 3:5-27 -- Elisha leads Judah and Israel in war against Moab</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/18e.md">18e -- 2 Kings 3:5-27 -- Elisha leads Judah and Israel in war against Moab</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/18g.md">18g -- 2 Kings 4:8-37 -- The Shunnamite woman’s son</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/18g.md">18g -- 2 Kings 4:8-37 -- The Shunnamite woman’s son</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/19a.md">19a -- 2 Kings 4:38-44,6:1-7 -- Elisha’s miracle before the brotherhood of prophets</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/19a.md">19a -- 2 Kings 4:38-44,6:1-7 -- Elisha’s miracle before the brotherhood of prophets</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/19b.md">19b -- 2 Kings 5:1-19 -- Elisha manifests God’s power through Naaman the Syrian</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/19b.md">19b -- 2 Kings 5:1-19 -- Elisha manifests God’s power through Naaman the Syrian</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/19c.md">19c -- 2 Kings 6:8-23 -- Elisha miraculously captures an enemy force</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/19c.md">19c -- 2 Kings 6:8-23 -- Elisha miraculously captures an enemy force</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/19d.md">19d -- 2 Kings 6:24-25,32-7:16 -- Samaria is miraculously freed from siege</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/19d.md">19d -- 2 Kings 6:24-25,32-7:16 -- Samaria is miraculously freed from siege</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/19f.md">19f -- 2 Kings 9:1-16,22-27 -- Jehu is anointed king of Israel by a disciple of Elisha</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/19f.md">19f -- 2 Kings 9:1-16,22-27 -- Jehu is anointed king of Israel by a disciple of Elisha</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/19e.md">19e -- 2 Kings 11:1-12:1 -- Athaliah and Jehoash</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/19e.md">19e -- 2 Kings 11:1-12:1 -- Athaliah and Jehoash</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/19g.md">19g -- 2 Kings 13:10-25 -- The reign of Jehoash in Israel. Prophet Elisha’s death</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/19g.md">19g -- 2 Kings 13:10-25 -- The reign of Jehoash in Israel. Prophet Elisha’s death</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/20a.md">20a -- Ephesians 1:1-14 -- The mystery of God’s will</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/20a.md">20a -- Ephesians 1:1-14 -- The mystery of God’s will</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/20b.md">20b -- Ephesians 1:15-23 -- Paul’s prayer for the enlightenment of the faithful</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/20b.md">20b -- Ephesians 1:15-23 -- Paul’s prayer for the enlightenment of the faithful</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/20c.md">20c -- Ephesians 2:1-10 -- Sinners are saved in Christ Jesus</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/20c.md">20c -- Ephesians 2:1-10 -- Sinners are saved in Christ Jesus</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/20d.md">20d -- Ephesians 2:11-22 -- Gentiles, Jews and God are reconciled</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/20d.md">20d -- Ephesians 2:11-22 -- Gentiles, Jews and God are reconciled</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/20f.md">20f -- Ephesians 3:1-13 -- The mystery of God</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/20f.md">20f -- Ephesians 3:1-13 -- The mystery of God</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/20e.md">20e -- Ephesians 3:14-21 -- A prayer that faithful may know the love of Christ</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/20e.md">20e -- Ephesians 3:14-21 -- A prayer that faithful may know the love of Christ</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/20g.md">20g -- Ephesians 4:1-16 -- The body of Christ is built up in unity</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/20g.md">20g -- Ephesians 4:1-16 -- The body of Christ is built up in unity</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/21a.md">21a -- Ephesians 4:17-24 -- Put on the new man</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/21a.md">21a -- Ephesians 4:17-24 -- Put on the new man</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/21b.md">21b -- Ephesians 4:25-5:7 -- Be imitators of God</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/21b.md">21b -- Ephesians 4:25-5:7 -- Be imitators of God</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/21c.md">21c -- Ephesians 5:8-21 -- Walk as sons of the Light</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/21c.md">21c -- Ephesians 5:8-21 -- Walk as sons of the Light</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/21d.md">21d -- Ephesians 5:22-33 -- Gifts of the spouses</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/21d.md">21d -- Ephesians 5:22-33 -- Gifts of the spouses</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/21f.md">21f -- Ephesians 6:1-9 -- Duties in domestic life</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/21f.md">21f -- Ephesians 6:1-9 -- Duties in domestic life</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/21e.md">21e -- Ephesians 6:10-24 -- Spiritual combat</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/21e.md">21e -- Ephesians 6:10-24 -- Spiritual combat</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/21g.md">21g -- Philemon 1-25 -- Paul’s entreaty for Onesimus</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/21g.md">21g -- Philemon 1-25 -- Paul’s entreaty for Onesimus</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/22a.md">22a -- 2 Kings 14:1-27 -- The reign of Amaziah in Judah and Jeroboam II in Israel</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/22a.md">22a -- 2 Kings 14:1-27 -- The reign of Amaziah in Judah and Jeroboam II in Israel</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/22b.md">22b -- Amos 1:1-2:3 -- The Lord’s judgement on the Nations</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/22b.md">22b -- Amos 1:1-2:3 -- The Lord’s judgement on the Nations</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/22c.md">22c -- Amos 2:4-16 -- The Lord’s judgement on Judah and Israel</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/22c.md">22c -- Amos 2:4-16 -- The Lord’s judgement on Judah and Israel</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/22d.md">22d -- Amos 3:1-15 -- The Lord’s visit to Samaria and Bethel</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/22d.md">22d -- Amos 3:1-15 -- The Lord’s visit to Samaria and Bethel</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/22f.md">22f -- Amos 4:1-13 -- Against the women of Samaria and the worship of Israel</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/22f.md">22f -- Amos 4:1-13 -- Against the women of Samaria and the worship of Israel</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/22e.md">22e -- Amos 5:1-17 -- Lamentations and exhortations</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/22e.md">22e -- Amos 5:1-17 -- Lamentations and exhortations</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/22g.md">22g -- Amos 5:18-6:14 -- The Day of the Lord. Against exterior worship and false security</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/22g.md">22g -- Amos 5:18-6:14 -- The Day of the Lord. Against exterior worship and false security</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/23a.md">23a -- Amos 7:1-17 -- Visions of disaster</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/23a.md">23a -- Amos 7:1-17 -- Visions of disaster</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/23b.md">23b -- Amos 8:1-14 -- Other visions</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/23b.md">23b -- Amos 8:1-14 -- Other visions</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/23c.md">23c -- Amos 9:1-15 -- The salvation of the just</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/23c.md">23c -- Amos 9:1-15 -- The salvation of the just</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/23d.md">23d -- Hosea 1:1-9,3:1-5 -- The prophet as symbol of God’s love for his people</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/23d.md">23d -- Hosea 1:1-9,3:1-5 -- The prophet as symbol of God’s love for his people</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/23f.md">23f -- Hosea 2:4-26 -- The punishment and future restoration of the Lord’s spouse</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/23f.md">23f -- Hosea 2:4-26 -- The punishment and future restoration of the Lord’s spouse</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/23e.md">23e -- Hosea 4:1-10,5:1-7 -- The general corruption of Israel and its priests</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/23e.md">23e -- Hosea 4:1-10,5:1-7 -- The general corruption of Israel and its priests</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/23g.md">23g -- Hosea 5:15-7:2 -- The futility of false conversion</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/23g.md">23g -- Hosea 5:15-7:2 -- The futility of false conversion</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/24a.md">24a -- Hosea 8:1-14 -- Against king, idolatry, covenant and worship</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/24a.md">24a -- Hosea 8:1-14 -- Against king, idolatry, covenant and worship</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/24b.md">24b -- Hosea 9:1-14 -- A prediction of exile and sterility</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/24b.md">24b -- Hosea 9:1-14 -- A prediction of exile and sterility</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/24c.md">24c -- Hosea 10:1-15 -- The idols and the king will be destroyed</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/24c.md">24c -- Hosea 10:1-15 -- The idols and the king will be destroyed</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/24d.md">24d -- Hosea 11:1-11 -- God’s mercy is never lacking</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/24d.md">24d -- Hosea 11:1-11 -- God’s mercy is never lacking</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/24f.md">24f -- Hosea 13:1-14:1 -- The last sentence of reprobation</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/24f.md">24f -- Hosea 13:1-14:1 -- The last sentence of reprobation</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/24e.md">24e -- Hosea 14:2-10 -- A call to conversion and promise of safety</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/24e.md">24e -- Hosea 14:2-10 -- A call to conversion and promise of safety</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/24g.md">24g -- 2 Kings 15:1-5,32-35,16:1-8 -- The reigns of Azariah, Jotham and Ahaz in Judah</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/24g.md">24g -- 2 Kings 15:1-5,32-35,16:1-8 -- The reigns of Azariah, Jotham and Ahaz in Judah</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/25a.md">25a -- Isaiah 6:1-13 -- The call of Isaiah</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/25a.md">25a -- Isaiah 6:1-13 -- The call of Isaiah</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/25b.md">25b -- Isaiah 3:1-15 -- Reproaches against Jerusalem</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/25b.md">25b -- Isaiah 3:1-15 -- Reproaches against Jerusalem</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/25c.md">25c -- Isaiah 5:8-13,17-24 -- Curses on evil-doers</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/25c.md">25c -- Isaiah 5:8-13,17-24 -- Curses on evil-doers</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/25d.md">25d -- Isaiah 7:1-17 -- In fear of war, the sign of Emmanuel</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/25d.md">25d -- Isaiah 7:1-17 -- In fear of war, the sign of Emmanuel</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/25f.md">25f -- Isaiah 9:8-10:4 -- The wrath of God against the kingdom of Israel</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/25f.md">25f -- Isaiah 9:8-10:4 -- The wrath of God against the kingdom of Israel</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/25e.md">25e -- Isaiah 28:1-6,14-22 -- An oracle against Samaria and leaders of Judah</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/25e.md">25e -- Isaiah 28:1-6,14-22 -- An oracle against Samaria and leaders of Judah</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/25g.md">25g -- Micah 1:1-9,2:1-11 -- An oracle against Samaria and Jerusalem</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/25g.md">25g -- Micah 1:1-9,2:1-11 -- An oracle against Samaria and Jerusalem</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/26a.md">26a -- Micah 3:1-12 -- Jerusalem will be destroyed for her leaders’ sins</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/26a.md">26a -- Micah 3:1-12 -- Jerusalem will be destroyed for her leaders’ sins</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/26b.md">26b -- Micah 6:1-15 -- The Lord contends with judgement of his people</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/26b.md">26b -- Micah 6:1-15 -- The Lord contends with judgement of his people</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/26c.md">26c -- 2 Kings 17:1-18 -- The end of the Kingdom of Israel</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/26c.md">26c -- 2 Kings 17:1-18 -- The end of the Kingdom of Israel</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/26d.md">26d -- 2 Kings 17:24-41 -- The origin of the Samaritans</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/26d.md">26d -- 2 Kings 17:24-41 -- The origin of the Samaritans</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/26f.md">26f -- 2 Chronicles 29:1-2,30:1-16 -- The priestly Passover of Hezekiah</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/26f.md">26f -- 2 Chronicles 29:1-2,30:1-16 -- The priestly Passover of Hezekiah</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/26e.md">26e -- Isaiah 20:1-6 -- The announcement of Egypt and Cush’s captivity</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/26e.md">26e -- Isaiah 20:1-6 -- The announcement of Egypt and Cush’s captivity</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/26g.md">26g -- 2 Kings 20:1-19 -- Hezekiah’s cure. A prophecy of the Babylonian captivity</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/26g.md">26g -- 2 Kings 20:1-19 -- Hezekiah’s cure. A prophecy of the Babylonian captivity</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/27a.md">27a -- Isaiah 22:1-14 -- Against Israel’s false securities</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/27a.md">27a -- Isaiah 22:1-14 -- Against Israel’s false securities</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/27b.md">27b -- Isaiah 30:1-18 -- The uselessness of alliances with foreign peoples</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/27b.md">27b -- Isaiah 30:1-18 -- The uselessness of alliances with foreign peoples</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/27c.md">27c -- 2 Kings 18:17-36 -- The Assyrian king’s envoys threaten Jerusalem</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/27c.md">27c -- 2 Kings 18:17-36 -- The Assyrian king’s envoys threaten Jerusalem</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/27d.md">27d -- 2 Kings 18:37-19:19,35-37 -- Hezekiah’s prayer. Jerusalem’s salvation</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/27d.md">27d -- 2 Kings 18:37-19:19,35-37 -- Hezekiah’s prayer. Jerusalem’s salvation</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/27f.md">27f -- Isaiah 37:21-35 -- Prophecies against the Assyrian king</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/27f.md">27f -- Isaiah 37:21-35 -- Prophecies against the Assyrian king</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/27e.md">27e -- 2 Kings 21:1-18,23-22:1 -- The reigns of Manasseh and Amon. The beginning of Josiah’s reign</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/27e.md">27e -- 2 Kings 21:1-18,23-22:1 -- The reigns of Manasseh and Amon. The beginning of Josiah’s reign</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/27g.md">27g -- Zephaniah 1:1-7,14-2:3 -- The Lord’s judgement</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/27g.md">27g -- Zephaniah 1:1-7,14-2:3 -- The Lord’s judgement</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/28a.md">28a -- Zephaniah 3:8-20 -- Salvation is promised to Israel’s poor</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/28a.md">28a -- Zephaniah 3:8-20 -- Salvation is promised to Israel’s poor</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/28b.md">28b -- Jeremiah 1:1-19 -- The call of Jeremiah</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/28b.md">28b -- Jeremiah 1:1-19 -- The call of Jeremiah</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/28c.md">28c -- Jeremiah 2:1-13,20-25 -- The infidelity of God’s people</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/28c.md">28c -- Jeremiah 2:1-13,20-25 -- The infidelity of God’s people</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/28d.md">28d -- Jeremiah 3:1-5,19-4:4 -- An invitation to conversion</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/28d.md">28d -- Jeremiah 3:1-5,19-4:4 -- An invitation to conversion</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/28f.md">28f -- Jeremiah 4:5-8,13-28 -- The destroyer will come from the North</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/28f.md">28f -- Jeremiah 4:5-8,13-28 -- The destroyer will come from the North</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/28e.md">28e -- Jeremiah 7:1-20 -- A prophecy on empty confidence in the Temple</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/28e.md">28e -- Jeremiah 7:1-20 -- A prophecy on empty confidence in the Temple</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/28g.md">28g -- Jeremiah 9:1-11,16-21 -- A reproof of the people’s evil.</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/28g.md">28g -- Jeremiah 9:1-11,16-21 -- A reproof of the people’s evil.</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/29a.md">29a -- 2 Kings 22:8,10-23:4,21-23 -- The Book of the Law discovered and the Covenant renewed</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/29a.md">29a -- 2 Kings 22:8,10-23:4,21-23 -- The Book of the Law discovered and the Covenant renewed</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/29b.md">29b -- Nahum 1:1-8,3:1-7,12-15 -- God’s judgement against Nineveh</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/29b.md">29b -- Nahum 1:1-8,3:1-7,12-15 -- God’s judgement against Nineveh</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/29c.md">29c -- 2 Chronicles 35:20-36:12 -- The corruption of Judah, and the first captivity</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/29c.md">29c -- 2 Chronicles 35:20-36:12 -- The corruption of Judah, and the first captivity</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/29d.md">29d -- Habakkuk 1:1-2:4 -- Prayer in time of desolation</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/29d.md">29d -- Habakkuk 1:1-2:4 -- Prayer in time of desolation</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/29f.md">29f -- Habakkuk 2:5-20 -- Curses against oppressors</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/29f.md">29f -- Habakkuk 2:5-20 -- Curses against oppressors</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/29e.md">29e -- Jeremiah 22:10-30 -- Oracles against the last kings of Judah</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/29e.md">29e -- Jeremiah 22:10-30 -- Oracles against the last kings of Judah</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/29g.md">29g -- Jeremiah 19:1-5,10-20:6 -- The symbol of the broken flask</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/29g.md">29g -- Jeremiah 19:1-5,10-20:6 -- The symbol of the broken flask</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/30a.md">30a -- Jeremiah 23:9-17,21-29 -- Against false prophets</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/30a.md">30a -- Jeremiah 23:9-17,21-29 -- Against false prophets</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/30b.md">30b -- Jeremiah 25:15-17,27-38 -- The chalice of God’s wrath against the pagans</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/30b.md">30b -- Jeremiah 25:15-17,27-38 -- The chalice of God’s wrath against the pagans</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/30c.md">30c -- Jeremiah 36:1-10,21-32 -- The book of Jeremiah’s prophecies is burned by the king</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/30c.md">30c -- Jeremiah 36:1-10,21-32 -- The book of Jeremiah’s prophecies is burned by the king</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/30d.md">30d -- Jeremiah 24:1-10 -- A vision of the faithful and unfaithful people of God</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/30d.md">30d -- Jeremiah 24:1-10 -- A vision of the faithful and unfaithful people of God</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/30f.md">30f -- Jeremiah 27:1-15 -- The people bear the yoke of the King of Babylon</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/30f.md">30f -- Jeremiah 27:1-15 -- The people bear the yoke of the King of Babylon</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/30e.md">30e -- Jeremiah 28:1-17 -- Jeremiah and the lying prophet Hananiah</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/30e.md">30e -- Jeremiah 28:1-17 -- Jeremiah and the lying prophet Hananiah</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/30g.md">30g -- Jeremiah 29:1-14 -- Jeremiah’s letter to exiles in Babylon</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/30g.md">30g -- Jeremiah 29:1-14 -- Jeremiah’s letter to exiles in Babylon</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/31a.md">31a -- 2 Kings 24:20-25:13,18-21 -- Jerusalem captured and sacked. Judah’s exile</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/31a.md">31a -- 2 Kings 24:20-25:13,18-21 -- Jerusalem captured and sacked. Judah’s exile</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/31b.md">31b -- Jeremiah 37:21,38:14-28 -- The imprisoned Jeremiah exhorts King Zedekiah to peace</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/31b.md">31b -- Jeremiah 37:21,38:14-28 -- The imprisoned Jeremiah exhorts King Zedekiah to peace</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/31c.md">31c -- Jeremiah 32:6-10,16,24-40 -- The imprisoned Jeremiah buys a field as a sign of hope</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/31c.md">31c -- Jeremiah 32:6-10,16,24-40 -- The imprisoned Jeremiah buys a field as a sign of hope</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/31d.md">31d -- Jeremiah 30:18-31:9 -- Promises of Israel’s restoration</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/31d.md">31d -- Jeremiah 30:18-31:9 -- Promises of Israel’s restoration</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/31f.md">31f -- Jeremiah 31:15-22,27-34 -- An announcement of salvation and New Covenant</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/31f.md">31f -- Jeremiah 31:15-22,27-34 -- An announcement of salvation and New Covenant</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/31e.md">31e -- Jeremiah 42:1-16,43:4-7 -- Jeremiah and the people after Jerusalem’s fall</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/31e.md">31e -- Jeremiah 42:1-16,43:4-7 -- Jeremiah and the people after Jerusalem’s fall</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/31g.md">31g -- Ezekiel 1:3-14,22-28 -- A vision in exile of the Lord’s glory</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/31g.md">31g -- Ezekiel 1:3-14,22-28 -- A vision in exile of the Lord’s glory</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/32a.md">32a -- Ezekiel 2:8-3:11,16-21 -- The call of Ezekiel</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/32a.md">32a -- Ezekiel 2:8-3:11,16-21 -- The call of Ezekiel</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/32b.md">32b -- Ezekiel 5:1-17 -- The destruction of Jerusalem symbolically prefigured</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/32b.md">32b -- Ezekiel 5:1-17 -- The destruction of Jerusalem symbolically prefigured</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/32c.md">32c -- Ezekiel 8:1-6,16-9:11 -- A judgement against a sinful Jerusalem</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/32c.md">32c -- Ezekiel 8:1-6,16-9:11 -- A judgement against a sinful Jerusalem</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/32d.md">32d -- Ezekiel 10:18-22,11:14-25 -- The glory of the Lord abandons the condemned City</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/32d.md">32d -- Ezekiel 10:18-22,11:14-25 -- The glory of the Lord abandons the condemned City</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/32f.md">32f -- Ezekiel 12:1-16 -- The people’s deportation is symbolically prefigured</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/32f.md">32f -- Ezekiel 12:1-16 -- The people’s deportation is symbolically prefigured</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/32e.md">32e -- Ezekiel 13:1-16 -- An oracle against false prophets</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/32e.md">32e -- Ezekiel 13:1-16 -- An oracle against false prophets</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/32g.md">32g -- Ezekiel 14:12-23 -- The salvation of the just and the ruin of sinners</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/32g.md">32g -- Ezekiel 14:12-23 -- The salvation of the just and the ruin of sinners</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/33a.md">33a -- Ezekiel 16:3,5,6-7,8-15,35,37,40-43,59-63 -- Jerusalem, God’s adulterous spouse</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/33a.md">33a -- Ezekiel 16:3,5,6-7,8-15,35,37,40-43,59-63 -- Jerusalem, God’s adulterous spouse</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/33b.md">33b -- Ezekiel 17:3-15,19-24 -- An oracle regarding ruin and restoration</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/33b.md">33b -- Ezekiel 17:3-15,19-24 -- An oracle regarding ruin and restoration</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/33c.md">33c -- Ezekiel 18:1-13,20-32 -- Each will receive retribution for his own acts</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/33c.md">33c -- Ezekiel 18:1-13,20-32 -- Each will receive retribution for his own acts</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/33d.md">33d -- Ezekiel 20:27-44 -- A history of Israel’s infidelity</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/33d.md">33d -- Ezekiel 20:27-44 -- A history of Israel’s infidelity</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/33f.md">33f -- Ezekiel 24:15-27 -- The life of the prophet is a sign for the people</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/33f.md">33f -- Ezekiel 24:15-27 -- The life of the prophet is a sign for the people</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/33e.md">33e -- Ezekiel 28:1-19 -- An oracle against the proud city of Tyre</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/33e.md">33e -- Ezekiel 28:1-19 -- An oracle against the proud city of Tyre</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/33g.md">33g -- Ezekiel 34:1-6,11-16,23-31 -- Israel, the Lord’s flock</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/33g.md">33g -- Ezekiel 34:1-6,11-16,23-31 -- Israel, the Lord’s flock</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/34b.md">34b -- Ezekiel 36:16-36 -- The future restoration of People of God</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/34b.md">34b -- Ezekiel 36:16-36 -- The future restoration of People of God</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/34c.md">34c -- Ezekiel 37:1-14 -- A vision of Israel's death and resurrection</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/34c.md">34c -- Ezekiel 37:1-14 -- A vision of Israel's death and resurrection</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/34d.md">34d -- Ezekiel 37:15-28 -- The union of Israel and Judah prefigured</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/34d.md">34d -- Ezekiel 37:15-28 -- The union of Israel and Judah prefigured</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/34f.md">34f -- Ezekiel 38:14-39:10 -- The Last Days</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/34f.md">34f -- Ezekiel 38:14-39:10 -- The Last Days</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/34e.md">34e -- Ezekiel 40:1-4,43:1-12,44:6-9 -- The restoration of the Temple and of Israel</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/34e.md">34e -- Ezekiel 40:1-4,43:1-12,44:6-9 -- The restoration of the Temple and of Israel</a></p>
 
-<a href="https://zdehkordi.github.io/officeofreadings/1/34g.md">34g -- Ezekiel 47:1-12 -- The cleansing spring flowing from the Temple</a>
+<p><a href="https://zdehkordi.github.io/officeofreadings/1/34g.md">34g -- Ezekiel 47:1-12 -- The cleansing spring flowing from the Temple</a></p>
